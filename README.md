@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### Hi there 👋, I'm [Dieu-Donné Fangnon](linkedin.com/in/dieu-donné-fangnon-4a062a242), 
 <!--
 **Dieu-DonneFANGNON/Dieu-DonneFANGNON** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
